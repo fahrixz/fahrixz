@@ -1,6 +1,6 @@
 <p align="center">
 
-    <img src="![13](https://github.com/fahrixz/fahrixz/assets/136611959/1db1e917-0f7a-4111-a00c-1b712157036c)
+    <img src="https://telegra.ph/file/b460840e56c8da260afbd.jpg
 " width="100%" style="margin-left: auto;margin-right: auto;display: block;">
 
 </p>
